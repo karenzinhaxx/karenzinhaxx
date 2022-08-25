@@ -1,6 +1,7 @@
-- 👋 Ola meu nome é **@karenzinhaxx**
-- 👍 Meu email de contado é [email](karen.lopes.oliveira@escola.pr.gov)
-- 👀 Eu estou interessadoem aprender a programar novas linguagens.
-- 🌱 Eu estou aprendendo a programar recentemente a linguagem de JavaScript e Scratch
+- 👋 **@karenzinhaxx** 𝒏𝒂 𝒂𝒓𝒆𝒂
+- 👍 15 𝒂𝒏𝒐𝒔
+- 👀 𝒂 𝒎𝒂̃𝒆 𝒕𝒂 𝒐𝒏 𝒆 𝒓𝒐𝒕𝒊𝒂𝒏𝒅𝒐
+- ♊
+- 𝒑𝒂𝒓𝒂𝒏𝒂́
 
 
